@@ -1,2 +1,2 @@
-# 10mmrof.github.io
-Про гильдия Dota 2/
+# 10 MMR PLAY
+Профессиональная гильдия в Dota 2.
